@@ -1,0 +1,1 @@
+# journal_paper_two_scale_method_bolted_connections_elevated_temperatures
